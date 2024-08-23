@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: mathewmanuel@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am a leftie!(that is what i have made my entire personality)
+- ⚡ Fun fact: I am a leftie!(that is what i have made my entire personality about)
 
 <!---
 Mathewmanuel/Mathewmanuel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

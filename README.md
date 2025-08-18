@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently pursuing an integrated masters in Computer Science
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: mathewmanuel@gmail.com
+- 📫 How to reach me: mathewmanuel004@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am a leftie!(that is what i have made my entire personality about)
 
